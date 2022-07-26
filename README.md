@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning ... Digital Marketing
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... 
+https://pranileducation.in/
 https://kingsedu.ac/
 https://mybeta.ca/
 https://digihiten.com/
